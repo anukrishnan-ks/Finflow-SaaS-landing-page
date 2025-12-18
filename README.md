@@ -1,1 +1,1 @@
-![Uploading screencapture-file-Users-anukrishnan-DIY-finflow-landingpage-Tailwind-template-index-html-2025-12-18-22_31_11.png…]()
+<img width="2940" height="8726" alt="screencapture-file-Users-anukrishnan-DIY-finflow-landingpage-Tailwind-template-index-html-2025-12-18-22_31_11" src="https://github.com/user-attachments/assets/c4c42478-ad84-4173-bd06-d781d8e0dc70" />
